@@ -1,0 +1,1 @@
+Hello world. I'm @cooldad83. I'm just a dad helping my kid with their diabetes management. I'm particularly interested in helping my child accept their diabetes and to use technology for seemless management.
